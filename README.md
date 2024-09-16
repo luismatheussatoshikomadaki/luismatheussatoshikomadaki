@@ -1,2 +1,2 @@
 ![Alt](https://p1-kimg.kwai.net/kimg/EKzM1y8qmgEKAnMzEg1waG90by1vdmVyc2VhGoQBdXBpYy8yMDIzLzA0LzMwLzE5L0JNakF5TXpBME16QXhPVE0wTkRaZk1UVXdNREF4TURNME1ETTNNREV4WHpFMU1ERXdNamd4TURNek16QTFNbDh5WHpNPV9vZmZuX0JjZjIyZTJhMzU2ZDJkOWMyYmVlMjUxZGVjMGIyNGM1MS53ZWJw.webp)
-![Alt](encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRYc4Wi4RGEZCBHr90MtGnVZjxF6rolf97MqA&s
+![Alt](encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQyklvBn1BnisTL6AlP4Pa8fh0HzgagOL6wtw&s)
