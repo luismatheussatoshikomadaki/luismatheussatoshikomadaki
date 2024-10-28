@@ -1,2 +1,7 @@
-![Alt](https://p1-kimg.kwai.net/kimg/EKzM1y8qmgEKAnMzEg1waG90by1vdmVyc2VhGoQBdXBpYy8yMDIzLzA0LzMwLzE5L0JNakF5TXpBME16QXhPVE0wTkRaZk1UVXdNREF4TURNME1ETTNNREV4WHpFMU1ERXdNamd4TURNek16QTFNbDh5WHpNPV9vZmZuX0JjZjIyZTJhMzU2ZDJkOWMyYmVlMjUxZGVjMGIyNGM1MS53ZWJw.webp)
-![Alt](tm.ibxk.com.br/2024/06/18/18091014511046.jpg?ims=1200xorig)
+# Sobre Mim
+Eu gosto de motos, carros e minha mulher
+![bmw-x4](https://github.com/user-attachments/assets/a11ca498-81cb-4396-8484-c6013e23b106)
+
+![images](https://github.com/user-attachments/assets/8d924a7d-d44d-4080-9dd7-3931cc87781a)
+
+![r6-2011-motonline-optimized](https://github.com/user-attachments/assets/5c5c2821-d7fc-4a22-88ae-1a2b85da899b)
